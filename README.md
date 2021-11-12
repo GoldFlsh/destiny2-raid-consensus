@@ -16,7 +16,7 @@ I'm not really sure how hard all of the old raids are actually going to be, so w
 
 
 ### Play Your Own Character
-Its important that everyone has agency over their own character and how they want to play it. Feel free to provide each other with build or subclass suggestions, however at the end of the day if someone disregards your feedback or advice that's their choice to make. 
+Its important that everyone has agency over their own character and how they want to play it. Feel free to provide each other with build or subclass suggestions, however at the end of the day if someone disregards your feedback or advice that's their choice to make don't take it personally. 
 
 ### Scheduling
 Raiding works best if you commit to a weekly schedule, or else it becomes hard to get everyone at the same time to do it. Think of this like your weekly Dungeons and Dragons group for the forseeable future :) 
