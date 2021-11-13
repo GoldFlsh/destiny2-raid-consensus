@@ -4,8 +4,10 @@
 We're hoping to get through the 4 active Destiny 2 raids blind without looking up strategy guides.
 Those raids are: Last Wish, Garden of Salvation, Deep Stone Crypt, and Vault of Glass.
 
+And if we're still having fun, then we can move on to the new Witch Queen raid(s)
+
 ### Blind Raiding
-Blind raiding is a unique experience and it's important to the integrity of the group that we don't suspect people of looking up strategies even if we wipe dozens of times on the same encounter. Figuring the encounter out and making steady progress on the mechanics as we disocver and tweak them makes blind raiding more rewarding than regular raiding and falls apart if someone in the raid is impatient and googles the answer.
+Blind raiding is a unique experience and it's important for the health of the group that we don't have to worry about suspecting people of looking up strategies even if we wipe dozens of times on the same encounter. Figuring the encounter out and making steady progress on the mechanics as we disocver and tweak them makes blind raiding more rewarding than regular raiding and falls apart if someone in the raid is impatient and googles the answer.
 
 ### Be Patient
 Raiding is some of the most challenging content in the game. Go in with the expectatation that we will make very slow progress, we will die collectively as a group a lot. Best to just enjoy that and laugh with each other. The cliche about the journey mattering more than the destination applies very much in this kind of raiding.
