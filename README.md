@@ -16,18 +16,13 @@ Raiding is some of the most challenging content in the game. Go in with the expe
 
 I'm not really sure how hard all of the old raids are actually going to be, so we could just breeze through but in the event that the difficulty is too hard don't feel disheartened.
 
-### This is Casual|Have Fun
-We're all adults, and not trying to be pro-gamers. Not trying to be world-first. Doing this to have fun is the goal. Fun is before loot. 
+### Have Fun
 
-We're working together as a group, and progressing as a group and the game will be a lot more fun to play together if we all make sure to keep the atmosphere light.
+This is very important to the health of the group. When winning it's important to celebrate our victories, but it's equally important to have fun and have a good attitude when failing, too. Part of raiding is a learning process, so while we will have serious moments of introspection on why we ended in failure, it's important we are light hearted and laugh at our failures, too.
 
-something something.
+I know there will be times where it's frustrating, but try to resist the urge to express frustration out loud in a way that's not constructive as it tends to bring the whole group morale down.
 
-We're there to do the activity and we're doing it for the enjoyment. 
-
-If you ever find you're not having fun...
-
-?????
+It's more fun that way, trust me.
 
 ### Play Your Own Character
 Its important that everyone has agency over their own character and how they want to play it. Feel free to provide each other with constructive build or subclass suggestions, however at the end of the day if someone disregards your feedback or advice that's their choice to make it personal.
